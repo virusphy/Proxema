@@ -6,7 +6,7 @@ Go and cry to your mama,
 'Cause here comes Proxema!"    
 
 # Why did I do this?
-Isn't it obvious? I was bored as f- ... maybe we should keep this family-friendly shall we?
+Isn't it obvious? I was bored as f- ... maybe we should keep this family-friendly, shall we?
 
 # My objectives
 I really want to develop my skills so that's why I posted this...I want people to test my virus and give me some suggestions!
